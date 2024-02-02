@@ -5,9 +5,12 @@
 
 - 📫 How to reach me **luisxutuctj@gmail.com**
 
-- ⚡ Fun fact **Kung Fu Disciple 🐉**
-
 - 👻 Only social media **@xxxlxlx on Tumblr**
+
+- 🇬🇹 Chapin y me gusta comer shukos
+
+-  🐉 Kung Fu Disciple **G.JMJO ❤️**
+
 
 <p align="left">
 </p>
